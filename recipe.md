@@ -12,3 +12,7 @@ Pour batter into prepared pans. Bake in preheated oven until a tester inserted i
 
 # Step 5
 To Make Icing: Cook 5 tablespoons flour and milk over low heat till thick, stirring constantly. Let cool completely! While mixture is cooling, beat 1 cup sugar, butter, and 1 teaspoon vanilla until light and fluffy. Add cooled flour mixture and beat until frosting is a good spreading consistency. Frost cake layers when completely cool.
+
+# Step 6
+
+This will be the end of the recipe.
